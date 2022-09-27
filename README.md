@@ -1,1 +1,1 @@
-# XEQO
+# CEQO
